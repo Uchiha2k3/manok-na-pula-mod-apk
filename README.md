@@ -7,7 +7,7 @@
 Manok Na Pula MOD APK brings an electrifying twist to cockfighting games, letting you dive into intense chicken battles with all features unlocked! This enhanced version offers all the classic action, now with extra perks like **unlockable chickens at max level 1000**. Whether you’re new to the action genre or a returning fan, this game will captivate you with its unique cockfighting theme and multiplayer battles.
 
 
-## Click dowload now 🐣👉🐓: [Manok Na Pula MOD APK](https://modhello.com/hungry-shark-world/)
+## Click dowload now 🐣👉🐓: [Manok Na Pula MOD APK](https://modhello.com/manok-na-pula/)
 ---
 
 ### Why Choose Manok Na Pula MOD APK Over the Original?
